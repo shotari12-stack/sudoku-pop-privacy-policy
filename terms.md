@@ -1,6 +1,6 @@
-Terms of Service for Sudoku Pop
+Terms of Service for SUDOKY WONDER
 
-Welcome to Sudoku Color! By using our application, you agree to these terms.
+Welcome to SUDOKY WONDER! By using our application, you agree to these terms.
 
 1. Use of the App
 You are granted a non-exclusive, non-transferable, revocable license to use the Sudoku Color application for your personal, non-commercial use, subject to these terms.
