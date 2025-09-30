@@ -1,6 +1,6 @@
-Privacy Policy for Sudoku Color
+Privacy Policy for SUDOKY WONDER
 
-This Privacy Policy describes how your personal information is handled in the Sudoku Color mobile application.
+This Privacy Policy describes how your personal information is handled in the SUDOKY WONDER mobile application.
 
 Data We Collect
 
